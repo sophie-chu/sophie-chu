@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sophie-chu
+- 👀 I’m interested in product management
+- 🌱 I’m currently learning how to make my first personal website
+- 💞️ I’m looking to collaborate on fun and beginner-level projects
+- 📫 How to reach me sophie.chu@uwaterloo.ca
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: my favorite cake is tres leches
